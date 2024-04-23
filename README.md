@@ -3,9 +3,9 @@
 ![NinaPanty](https://i.imgur.com/17ruv3g.png)
 <br>Simply a Shrimp :D
 
-<br>## Born on September 26, 2003
-<br>## Personality can be a bit childish
-<br>## Even though I've been using Github for a long time, I'm still a bit dumb <img src="https://i.imgur.com/yifTm6g.gif" width="16px" height="16px" />
+<br><em>Born on September 26, 2003<em/>
+<br><em>Personality can be a bit childish<em/>
+<br><em>Even though I've been using Github for a long time, I'm still a bit dumb<em/> <img src="https://i.imgur.com/yifTm6g.gif" width="16px" height="16px" />
 
 <!--
 **GuraNotFound/GuraNotFound** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
