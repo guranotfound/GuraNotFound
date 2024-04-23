@@ -5,7 +5,7 @@
 
 <br>## Born on September 26, 2003
 <br>## Personality can be a bit childish
-<br>## Even though I've been using Github for a long time, I'm still a bit dumb <img src="https://..." width="32px" height="32px" />
+<br>## Even though I've been using Github for a long time, I'm still a bit dumb <img src="https://i.imgur.com/yifTm6g.gif" width="16px" height="16px" />
 
 <!--
 **GuraNotFound/GuraNotFound** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
