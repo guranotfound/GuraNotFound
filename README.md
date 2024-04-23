@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+![NinaPanty](https://i.imgur.com/0npjsgp.png)
+Simply a Shrimp :D
+
 <!--
 **GuraNotFound/GuraNotFound** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
