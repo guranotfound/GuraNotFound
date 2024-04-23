@@ -1,7 +1,11 @@
 ### Hi there 👋
 
-![NinaPanty](https://i.imgur.com/0npjsgp.png)
-Simply a Shrimp :D
+![NinaPanty](https://i.imgur.com/17ruv3g.png)
+<br>Simply a Shrimp :D
+
+<br>## Born on September 26, 2003
+<br>## Personality can be a bit childish
+<br>## Even though I've been using Github for a long time, I'm still a bit dumb <img src="https://..." width="32px" height="32px" />
 
 <!--
 **GuraNotFound/GuraNotFound** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
