@@ -1,7 +1,7 @@
-### Hi there 👋
+### Hi there <img src="https://imgur.com/XmlR2CS" width=16px height=16px />
 
 ![NinaPanty](https://i.imgur.com/17ruv3g.png)
-<br>Simply a Shrimp :D
+<br>Simply a Simp :D
 
 <br><em>Born on September 26, 2003<em/> <img src="https://i.imgur.com/XmlR2CS.png" width="16px" height="16px" />
 <br><em>Personality can be a bit childish<em/> <img src="https://i.imgur.com/xz0ex1n.png" width="16px" height="16px" />
