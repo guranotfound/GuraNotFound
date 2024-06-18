@@ -3,7 +3,7 @@
 ![NinaPanty](https://i.imgur.com/17ruv3g.png)
 <br>Simply a Simp :D
 
-<br><em>Born on September 26, 2003<em/> <img src="https://i.imgur.com/XmlR2CS.png" width="16px" height="16px" />
+<br><em>Born on September 26, 2003<em/> <img src="https://imgur.com/Axx7l7D.png" width="16px" height="16px" />
 <br><em>Personality can be a bit childish<em/> <img src="https://i.imgur.com/xz0ex1n.png" width="16px" height="16px" />
 <br><em>Even though I've been using Github for a long time, I'm still a bit dumb<em/> <img src="https://i.imgur.com/yifTm6g.gif" width="16px" height="16px" />
 <br><em>Likes playing high-speed shooting games (e.g Call Of Duty) and sleeping<em/> <img src="https://i.imgur.com/gLvqbKg.png" width="16px" height="16px" /> <img src="https://i.imgur.com/95Tbufx.png" width="16px" height="16px" />
