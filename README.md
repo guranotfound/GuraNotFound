@@ -1,4 +1,4 @@
-### Hi there <img src="https://imgur.com/XmlR2CS.png" width=16px height=16px />
+### Hi there <img src="https://imgur.com/uTQG6PB.png" width=16px height=16px />
 
 ![NinaPanty](https://imgur.com/1cXm0Tc.png)
 <br>Simply a Simp :D
